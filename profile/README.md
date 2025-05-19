@@ -1,4 +1,4 @@
-## 'Die Legende von Ochi' (2025) 
+## 'Die Legende von Ochi' (2025) 𝘿𝙚𝙪𝙩𝙨𝙘𝙝 𝙆𝙤𝙨𝙩𝙚𝙣𝙡𝙤𝙨
 
 ### .github
 
